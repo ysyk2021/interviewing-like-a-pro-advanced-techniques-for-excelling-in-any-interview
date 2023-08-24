@@ -1,5 +1,3 @@
-What to Expect During the Interview Process
-===========================================================================================
 
 Understanding the interview process is an essential step in preparing for a job interview. By knowing what to expect, you can feel more confident and prepared for each stage of the process. In this chapter, we'll explore the typical stages of the interview process and what you can expect during each stage.
 

@@ -1,5 +1,3 @@
-Addressing Sensitive or Controversial Topics
-===================================================================================================
 
 During an interview, you may be asked to address sensitive or controversial topics, such as your political beliefs or previous salary. In this chapter, we'll explore strategies for handling these types of questions effectively.
 

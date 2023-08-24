@@ -1,5 +1,3 @@
-Chapter 3: Crafting Your Personal Brand
-=======================================
 
 Crafting a strong personal brand is essential to making a great impression during an interview. In this chapter, we'll explore strategies for developing a strong personal brand, understanding your unique value proposition, and creating a compelling elevator pitch.
 

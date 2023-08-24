@@ -1,5 +1,3 @@
-Dealing with Tricky Interviewers
-=======================================================================================
 
 In some cases, you may encounter a tricky interviewer who asks difficult questions or employs challenging tactics during the interview. In this chapter, we'll explore strategies for handling tricky interviewers effectively.
 

@@ -1,5 +1,3 @@
-Conducting Research About the Company
-======================================================================================
 
 Conducting research about the company you're applying to is a crucial step in preparing for a job interview. It shows that you are interested in the position and have taken the time to learn about the company's values, mission, and culture. In this chapter, we'll explore strategies for conducting research about the company.
 

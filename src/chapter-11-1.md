@@ -1,5 +1,3 @@
-Using Social Media to Your Advantage
-==========================================================================================
 
 Social media has become an increasingly important tool for job seekers to connect with potential employers and showcase their skills and qualifications. In this chapter, we'll explore strategies for using social media effectively in your job search.
 

@@ -1,5 +1,3 @@
-Nonverbal Communication Tips
-=======================================================================================
 
 Effective communication during an interview involves more than just what you say. Nonverbal communication - your body language, facial expressions, tone of voice, and other nonverbal cues - can also convey important messages to the interviewer. In this chapter, we'll explore tips for using nonverbal communication effectively during an interview.
 

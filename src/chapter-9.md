@@ -1,5 +1,3 @@
-Chapter 9: Navigating Special Interview Circumstances
-=====================================================
 
 Interviews can take many different forms, and it's important to be prepared for any type of interview scenario. In this chapter, we'll explore strategies for navigating special interview circumstances, including phone and video interviews, group interviews, and second-round and final interviews.
 

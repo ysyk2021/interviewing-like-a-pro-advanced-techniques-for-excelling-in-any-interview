@@ -1,5 +1,3 @@
-Controlling Your Own Nonverbal Cues
-==================================================================================
 
 Mastering nonverbal communication is crucial to making a positive impression during a job interview. In this chapter, we'll explore strategies for controlling your own nonverbal cues to convey confidence and professionalism.
 

@@ -1,5 +1,3 @@
-Commonly Asked Questions About Your Background and Experience
-==================================================================================================================
 
 Preparing for common interview questions is an important part of succeeding in any job interview. In this chapter, we'll explore commonly asked questions about your background and experience and provide strategies for answering them effectively.
 

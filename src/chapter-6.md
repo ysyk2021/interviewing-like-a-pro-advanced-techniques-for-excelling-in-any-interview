@@ -1,5 +1,3 @@
-Chapter 6: Answering Difficult Interview Questions
-==================================================
 
 During an interview, you may be asked difficult or unexpected questions that can catch you off guard. In this chapter, we'll explore strategies for answering difficult interview questions effectively.
 

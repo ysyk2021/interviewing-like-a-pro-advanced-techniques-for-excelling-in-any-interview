@@ -1,5 +1,3 @@
-Chapter 11: Leveraging Technology in Your Job Search
-====================================================
 
 With the rise of technology, job searching has become more accessible and efficient than ever before. In this chapter, we'll explore how to leverage technology in your job search, including using social media to your advantage, finding job opportunities online, and navigating applicant tracking systems.
 

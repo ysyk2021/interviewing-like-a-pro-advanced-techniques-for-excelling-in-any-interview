@@ -1,5 +1,3 @@
-Handling Unexpected Disruptions or Distractions
-======================================================================================================
 
 During an interview, unexpected disruptions or distractions can occur, and it's important to handle them professionally and effectively. In this chapter, we'll explore strategies for handling challenging interview situations, such as unexpected disruptions or distractions.
 

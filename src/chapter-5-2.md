@@ -1,5 +1,3 @@
-Questions about your Strengths and Weaknesses
-==================================================================================================
 
 One of the most common interview questions is, "What are your strengths and weaknesses?" This question can be tricky to answer because you want to highlight your strengths while also being honest about areas where you can improve. Here are some tips for preparing for this question:
 

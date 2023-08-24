@@ -1,5 +1,3 @@
-Phone and Video Interviews
-=================================================================================
 
 In today's job market, it's common to participate in phone or video interviews as part of the hiring process. Although they may seem less formal than in-person interviews, it's important to take them just as seriously. In this chapter, we'll explore strategies for navigating phone and video interviews.
 

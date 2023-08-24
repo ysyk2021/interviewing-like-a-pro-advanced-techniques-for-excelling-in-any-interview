@@ -1,5 +1,3 @@
-Creating a Compelling Elevator Pitch
-=============================================================================
 
 Creating a compelling elevator pitch is an essential part of crafting your personal brand. An elevator pitch is a brief, persuasive speech that you can use to introduce yourself and your skills and experience to potential employers. In this chapter, we'll explore strategies for creating a compelling elevator pitch.
 

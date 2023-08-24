@@ -1,5 +1,3 @@
-Reading and Interpreting Body Language
-=====================================================================================
 
 Nonverbal communication is a critical component of effective communication during an interview. In this chapter, we'll explore strategies for mastering nonverbal communication by reading and interpreting body language.
 

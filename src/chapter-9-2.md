@@ -1,5 +1,3 @@
-Group Interviews
-=======================================================================
 
 Group interviews can be a unique and challenging interview format, but they are becoming increasingly common in the hiring process. In this chapter, we'll explore strategies for navigating group interviews effectively.
 

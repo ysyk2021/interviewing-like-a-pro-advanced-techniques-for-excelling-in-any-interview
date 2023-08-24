@@ -1,5 +1,3 @@
-Chapter 13: Mastering Nonverbal Communication
-=============================================
 
 Nonverbal communication plays a significant role in job interviews. By mastering nonverbal cues, you can create a positive impression and communicate effectively with the interviewer. In this chapter, we'll explore how to read and interpret body language, control your own nonverbal cues, and create a positive first impression.
 

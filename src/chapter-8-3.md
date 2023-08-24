@@ -1,5 +1,3 @@
-What to Do If You Don't Get the Job
-================================================================================
 
 Job interviews can be competitive, and there's always a chance that you won't get the job. However, following up after the interview can still be valuable in building relationships and potentially opening doors for future opportunities. In this chapter, we'll explore what to do if you don't get the job and how to follow up gracefully.
 

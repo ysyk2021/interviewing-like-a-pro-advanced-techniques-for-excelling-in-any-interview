@@ -1,5 +1,3 @@
-Finding Job Opportunities Online
-======================================================================================
 
 Leveraging technology can be a powerful tool for finding job opportunities and advancing your career. In this chapter, we'll explore strategies for finding job opportunities online.
 

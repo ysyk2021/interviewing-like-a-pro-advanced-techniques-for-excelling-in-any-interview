@@ -1,5 +1,3 @@
-Chapter 5: Preparing for Common Interview Questions
-===================================================
 
 Preparing for common interview questions is an essential part of the job search process. By anticipating questions and practicing your responses, you can increase your confidence and demonstrate your qualifications and experience effectively. In this chapter, we'll explore strategies for preparing for commonly asked questions about your background and experience, questions about your strengths and weaknesses, and behavioral interview questions.
 

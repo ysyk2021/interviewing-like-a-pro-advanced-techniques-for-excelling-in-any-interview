@@ -1,5 +1,3 @@
-Building Rapport and Connection with the Interviewer
-===============================================================================================================
 
 Building rapport and connection with the interviewer is an essential part of communicating effectively during a job interview. In this chapter, we'll explore strategies for building rapport and connection with the interviewer to help you stand out from other candidates.
 
