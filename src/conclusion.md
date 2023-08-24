@@ -1,5 +1,4 @@
 
-
 Congratulations! You've made it to the end of the book. By now, you should have a solid understanding of how to prepare for and excel in any interview. 
 
 Now that you have a strong foundation for interviewing like a pro, it's important to continue to develop your skills. Here are some future directions for interview preparation and success:
