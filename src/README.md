@@ -8,3 +8,7 @@ In this book, we'll cover advanced techniques such as mastering behavioral inter
 By the end of this book, you'll have all the tools and strategies you need to excel in any interview, ultimately leading to greater success and growth in your personal and professional life. So let's get started!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
