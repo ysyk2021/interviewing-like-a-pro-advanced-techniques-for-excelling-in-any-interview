@@ -1,5 +1,4 @@
-Chapter: Tips for Researching and Determining Fair Compensation
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
